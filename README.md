@@ -3,8 +3,10 @@
 - 🌱 I’m currently learning : how to never give you up
 - 💞️ I’m looking to collaborate on : I'M GONNA LET YOU DOWN
 - 📫 How to reach me : DO. NOT. CALL. ME.
-- 😄 Pronouns : the lord of all that is golden / graftussy
+- 😄 Pronouns : pronouns are a conspiracy / abolish gender
 - ⚡ Fun fact : there's none, there is only darkness and suffering [emo_emoji_dark.png]
+
+- this was made three years ago, don't judge
 
 <!---
 Artiyel/Artiyel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
